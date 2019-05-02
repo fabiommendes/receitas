@@ -11,11 +11,11 @@
 ## Modo de preparo da calda
 - Derreta o açucar até ficar dourado
 - Misture o açucar com a água e mexa
-- Deixe ferver atée engrossar
+- Deixe ferver até engrossar
 - Forre o recipiente que vai ao forno com a calda
 
 ## Modo de preparo do Pudim
-- Quebre os ovos e penere 
+- Quebre os ovos e peneire 
 - Bata os ovos o leite e o leite condensado
 - Despeje no recipiente
 - Asse em banho maria por 1h30min
